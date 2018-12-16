@@ -1,4 +1,4 @@
-## Closed Beta Signups
+## Partner List
 
 Disclaimers:
 - Our partners do not give or receive any financial support.
