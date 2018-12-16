@@ -6,6 +6,6 @@ Disclaimers:
 - The behavior of our partners does not directly reflect upon us.
 - Any issues between partners will result in an immediate termination of the partnership.
 
-_More information about partnerships and applying for one will follow shortly._
+_More information about partnerships and applying will follow shortly._
 
 
